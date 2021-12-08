@@ -1,0 +1,3 @@
+## Bob Codi Presentation
+Our story is about bob, a guy who works at codi and has a big presentation there.
+The day of his presentation a series of events happen and a he need to take couple decisions that might change his life for either the best or the worst (he even might die if he choose the wrong decisions). This game is to show that good actions are never lost and they will always impact your life for the best, even if you dont realize it. Bob the hero of our story had a tough decision of helping a stranger, that stranger turned out to be the head of the committee who gave him a raise, he also tried to help badih with good intentions but ended up being benefited by what he did, and so on.
